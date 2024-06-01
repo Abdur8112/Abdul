@@ -7,3 +7,4 @@ hello raja ji kaise ho
 hello janeman kya haal hai aapki
 hello jaan 😊 kya hai aapka Mann 
 kahah hai
+hi friend log

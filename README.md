@@ -7,4 +7,5 @@ hello raja ji kaise ho
 hello janeman kya haal hai aapki
 hello jaan 😊 kya hai aapka Mann 
 kahah hai
-hi friend log
+hi friend log ji 
+kya raha vote ka din  aap logo ne vote kiya 

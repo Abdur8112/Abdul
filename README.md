@@ -12,3 +12,5 @@ kya raha vote ka din  aap logo ne vote kiya
 kya haal hai sir 
 aane wale 4 tarikh ko ginti hai bhai  
 how are yu bro 
+hi helo 
+how are you tel please

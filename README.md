@@ -14,3 +14,6 @@ aane wale 4 tarikh ko ginti hai bhai
 how are yu bro 
 hi helo 
 how are you tel please
+hi m
+ugiiiub hkiugi
+hhkhkjyu ffdyd  uyiy
